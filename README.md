@@ -1,2 +1,2 @@
 # apnacollege
-Author - Prashanna
+Author - Prashanna K
